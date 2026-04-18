@@ -6,6 +6,7 @@
 
 ## H2 Created By: Eleazar James Abelgas
 
-## Top 2 Anime Series
+## Top 4 Anime Series
 1. **BlockClover**
 2. **FireForce**
+3. **Onepice**
